@@ -1,4 +1,4 @@
-- 👋 Oi, eu sou o Matias, mas pode me chamar de MaM4ts.
+- 👋 Oi, eu sou o Matias, mas na internet prefiro que chame de MaM4ts.
 - 👀 Eu estou interessado em evoluir cada dia mais nas batalhas de rima.
 - 🌱 Eu tentei aprender a jogar xadrez, porém não consegui evolução e desanimei.
 - 💞️ Eu sou totalmente de exatas.
